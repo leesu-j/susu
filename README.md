@@ -1,1 +1,1 @@
-# susu
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Ubuntu&size=30&pause=1000&color=1618F7&background=2FFFFD00&center=true&width=435&lines=%F0%9F%93%8C+susu's+github)](https://git.io/typing-svg)
